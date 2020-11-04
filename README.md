@@ -1,0 +1,21 @@
+# uploadCdmBd
+ericky feio chato e bobo
+FILHO 
+DA
+PUTA
+MALDITO 
+DESGRAÇADO
+TOMARA
+Q
+SOFRA
+ACIDENTE
+DE
+CARRO
+TOMA
+ESSA
+PORRA
+DE 
+BD
+AI
+SEU 
+DEMONIO
